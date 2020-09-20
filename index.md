@@ -1,4 +1,5 @@
 
+![image](https://cdn.vox-cdn.com/thumbor/CXyP0nVaOC3JATcnHgleCzeUTB0=/0x0:2040x1360/775x775/filters:focal(857x517:1183x843):format(webp)/cdn.vox-cdn.com/uploads/chorus_image/image/64035800/acastro_190618_1777_cloud_gaming_0003.0.jpg)
 
 ## I'm glad you are here. I plan to talk about the gaming indsutry today.
 
